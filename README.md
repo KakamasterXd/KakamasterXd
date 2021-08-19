@@ -1,0 +1,3 @@
+- 😏🍔 hi i'm kakamaster
+-😃🍍 I’m interested in animate and code
+- 🐴 Youtube https://www.youtube.com/channel/UCL6yENMv-iwkWsCP7n40x5g
